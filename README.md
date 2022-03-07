@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nicholasbtidwell
-- 👀 I’m interested in ... hiking, biking, climbing, and photography.
+- 👀 I’m interested in ... biking, climbing, gear, hiking, photography, writing
 - 🌱 I’m currently learning ... everything.
 - 💞️ I’m looking to collaborate on ... whatever I can.
 - 📫 How to reach me ...leave a message at the tone.
